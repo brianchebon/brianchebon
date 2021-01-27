@@ -1,3 +1,3 @@
 Username: brianchebon
 
-Github Eamil: brianchbon@hotmail.com
+Github Eamil: brianchebon@hotmail.com
